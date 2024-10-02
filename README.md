@@ -1,0 +1,3 @@
+- 👋 Oi, eu sou a Emilly.
+- 👀 Eu gosto de gatos, anime, livros, doramas e jogos.
+- 😄 Pronomes: ela/dela.
